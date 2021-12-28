@@ -1,1 +1,0 @@
-# martinjamescalpe.github.io
